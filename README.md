@@ -1,0 +1,2 @@
+# Pair-theory-doubling-and-quantum-teleportation
+Crystalline structures which grow in doubles, quadruples. When advanced structures break irregularly, and an atom pair is separated, the chemical bond exists even if a physical change is made. When a physical break occurs while atoms are still chemically bonded, resonance frequencies will travel between the particles no matter how far the distances between the two fragments is located.
